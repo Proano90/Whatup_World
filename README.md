@@ -4,6 +4,6 @@ This is the beginning
 of something marvlous
 
 
-We shall start off smal; learn, perfect, produce, and...
+We shall start off small; learn, perfect, produce, and...
 
 
